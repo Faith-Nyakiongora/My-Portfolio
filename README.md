@@ -1,1 +1,1 @@
-# Faith-Nyakiongora
+# Faith Nyakiongora
